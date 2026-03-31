@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Amal PS]
+# 👋 Hi, I'm Amal PS
 
 🚀 Cybersecurity Enthusiast | Ethical Hacking | AI Automation  
 
